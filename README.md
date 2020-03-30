@@ -1,3 +1,3 @@
 # colossus
 Just a little something to start with...
-Ask about Forbin if you know ehre I'm coming from!
+Ask about Forbin if you know where I'm coming from!
